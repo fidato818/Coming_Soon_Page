@@ -1,1 +1,1 @@
-# Adnan_Pharmacy - Coming Soon Page
+# Coming Soon Page
